@@ -37,3 +37,48 @@ For some time, the Green economy minister has been Germany’s most popular poli
 
 As a result, Habeck's personal rating has droppeed. 
 
+# [What do the German Greens want if they gain power](https://www.dw.com/en/what-do-the-german-greens-want-if-they-gain-power/a-57248907) (2021,09,24) 
+
+Greeens have broken down materials to all other parties, with the excepton of AFD. they have joined coalitions with all other major parties (excpet Bavarian CSU, though formed several coalition with CDU)
+
+become more united behind the party leadership 
+
+## Climate protection, foreign policy 
+In terms of policy, the Greens have remained largely true to their 40-year-old founding principles: Environmental protection, 
+* especially the fight against climate change, remains central to their election program
+* where the party says it wants to cut greenhouse gases by 70% by 2030, a major target extension compared to the current government's plan, which aims to achieve a 55% reduction.
+> agenda framing: the flood and the climate disaster around the world 
+> what are the Green's particular high standards on the climate despite an accelation of Germany's "energy transition" to renewables and a rapid expansion of renewable energies. 
+
+Foregin policy: 
+* stronger Europe, EU strong again 
+* critical approach toward Russia and China: oppose the Nord Stream 2 pipeline from Russia through Baltic Sea, support for opposition groups in China. 
+
+
+Economic and social policy: 
+* favor a strong state and more spending. (election program full of expensive programs and the empty state coffers) 
+
+Against more social division:
+Many Green politicians, such as the Bundestag Vice President Claudia Roth, have become hate figures for the country's far-right.
+
+
+
+[The Greens go mainstream](https://www.dw.com/en/german-green-party-goes-mainstream/a-55702152)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
