@@ -65,6 +65,87 @@ Many Green politicians, such as the Bundestag Vice President Claudia Roth, have 
 
 [The Greens go mainstream](https://www.dw.com/en/german-green-party-goes-mainstream/a-55702152)
 
+[Germany's Greens: from 'anti-party party' to political power](https://www.youtube.com/watch?v=4hFh3BAnDx0) 
+The birth of the Greens
+* the anti-party party, anti-establishment and radical
+The Greens move from opposition to governing party
+* anti-war party agree to launch war
+Climate change puts Greens in the right place at the right time
+* not necessarily a political disaster: issue framing as we are ahead of time, and we are the future. 
+The middle ground: Greens move toward political center
+* how faster should greens to reach the middle ground and agree the compromise by breaking some founding ideas of party.
+The big one: Annalena Baerbock's campaign for chancellor
+* CV, book plagraism-> lack of expreience and professionalism 
+
+[Energy crisis: will a green transition throw the global economy into a recession?](https://www.youtube.com/watch?v=n0GT-oZD8nc) (2022,02)
+
+enery price 400& first energy price of green transition 
+1. covid-19 (fossil fuel production shrink) 
+2. Germany: renewables (41.4%), lignite coal (17.8%) Natural Gas (16.7%) Nuclear (11.7%), Hard coal (8.4%), mineral oil (0.8%), other 
+3. China surging enenry demand after production recovery spillover effect
+4. import gas from Russia (dependence on Russia) 
+5. EU's natural gas source: Russia (41.1%), Norway, Algeria, Qatar (LNG: liquified natural gas) 
+6. Nord stream 2: need the approve from German regualtors
+* criticism: increase EU's dependence on German's gas 
+7. fossil and coal producer may have the incentive to creater a shortage of supply, which raise the price 
+8. suspension of Nord stream --> blamed towards Greens: overly ambitious targets to reduce emissions made fossil fuels pariahs before renewables fully ready to take the road. 
+
+> issue framing: situation exposes not so much the fact that we tried to decarbonize but the opposite: if we have a large share of renewables at this stage--> less reliant on fossil fuels,less reliant on the energy source whose price is currently very high, we need to transition away from the future risk --> investment in newables 
+> what about now? 
+> * idle coal production line back to work 
+>  set high price on fossil fuel and coal: but need to have a affordable renewables which consumers can shift to, consumers can be angry. 
+
+# [Nuclear power: German Greens put pragmatism first](https://www.dw.com/en/nuclear-power-german-greens-put-pragmatism-before-core-values/a-63521581) (2022,10,23)
+
+The Green Party has seen challenges to its core principles ever since it became part of Germany's three-party government. Pragmatism is forcing painful decisions on weapons exports, fossil fuels, and nuclear power.
+
+As the Green party climbed in the polls ahead of 2021 federal elections: the "Basis" (grassroots) of the party began to voicing concenrns that entering government would again mean a compromise on party principles and ideology.
+* the war in Ukraine has prompted Green Party leaders to spearhead calls for weapons deliveries to a war region (force Green party leader Robert Haberk put human rights issue and climate concenrs aside in search of replacements for Russia gas and oil) 
+* And now, the party that has its roots in the anti-nuclear movement of the 1980s, has had to accept that the country's remaining three nuclear power stations will keep on operating beyond the end of the year. (corresponding bill must still pass through parliament) 
+
+"The fact that this decision was made by Chancellor Scholz, makes it easier for Green leaders to sell it to the party base," climate policy researcher Chantal Sullivan-Thomsett tells DW.
+* "They can argue that the policy shift did not come because they failed to push their agenda hard enough or dropped a key component of the Green 'brand'."
+
+## Diversification in Northern Germany
+Lower Saxony (northwestern Germany): take the Emsland nuclear plant offline, 
+* Robert Habeck had wanted to take the Emsland nuclear plant offline by the end of this year as planned.
+* And Lower Saxony's Social Democrats and Greens had argued that continued operation was unnecessary, as the region produces a sufficient amount of wind energy to make ends meet
+* Greens co-leader Ricarda Lang criticized Scholz's decision to keep Emsland online as being "not necessary for grid stability."
+
+compromise-happy "Realos" (realists) and the radical "Fundis" (fundamentalists) which were the trademark of the Green Party for decades. In recent months, the Greens have had to make difficult decisions at an "insane speed," Habeck said. And they have proven they "justifiably" bear the responsibility of being in government.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
