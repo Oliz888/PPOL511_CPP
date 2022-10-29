@@ -114,11 +114,19 @@ Lower Saxony (northwestern Germany): take the Emsland nuclear plant offline,
 
 compromise-happy "Realos" (realists) and the radical "Fundis" (fundamentalists) which were the trademark of the Green Party for decades. In recent months, the Greens have had to make difficult decisions at an "insane speed," Habeck said. And they have proven they "justifiably" bear the responsibility of being in government.
 
+# [Germany's Robert Habeck has a rollercoaster year](https://www.dw.com/en/german-economy-minister-robert-habecks-stressful-first-year/a-63397423)
 
+The contradiction of a Green politician campaigning working to supply fossil fuels did not appear to bother him; shopping for gas in the emirate, a country much criticized for its human rights violations.
 
+Habeck took a large business delegation with him to the Gulf, and most business leaders were full of praise for his communication style.
 
+July: Gas levy; Habeck himself spoke of up to 5 cents per kilowatt hour, which would have burdened an average household with three to four people by up to €2,000 ($1,940) a year. Finally, it became 2.4 cents, and then the gas levy was abandoned altogether.
 
+Instead, the government decided to spend a staggering €200 billion to cap gas prices and support companies.
 
+Habeck faced sharp criticism, including from the business community when he said he wanted to keep only two of the three German nuclear power plants still in operation running until the end of March next year because of the energy crisis.
+
+The issue of Lützerath was finally turning many Green voters against Habeck. 
 
 
 
